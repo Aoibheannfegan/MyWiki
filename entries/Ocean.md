@@ -1,0 +1,3 @@
+#Ocean
+
+The ocean (also known as the sea or the world ocean) is a body of salt water that covers approximately 70.8% of the Earth and contains 97% of Earth's water.[9] The term ocean also refers to any of the large bodies of water into which the world ocean is conventionally divided.[10] Distinct names are used to identify five different areas of the ocean: Pacific (the largest), Atlantic, Indian, Southern, and Arctic (the smallest).[11][12] Seawater covers approximately 361,000,000 km2 (139,000,000 sq mi) of the planet. The ocean is the primary component of the Earth's hydrosphere, and thus essential to life on Earth. The ocean influences climate and weather patterns, the carbon cycle, and the water cycle by acting as a huge heat reservoir.

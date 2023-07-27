@@ -1,0 +1,1 @@
+The orca, also called killer whale, is a toothed whale belonging to the oceanic dolphin family, of which it is the largest member. It is the only extant species in the genus Orcinus and is recognizable by its black-and-white patterned body
